@@ -1,4 +1,3 @@
-[mandat_C260410112701H923476.pdf](https://github.com/user-attachments/files/26646810/mandat_C260410112701H923476.pdf)
 ## Hi there 👋
 
 <!--
